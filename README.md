@@ -1,0 +1,1 @@
+# USA_SW_Market_Trend_Analysis
